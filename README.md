@@ -2,5 +2,9 @@
 
 
 
-https://github.com/EgeKrts/StockApp/assets/98173099/78ea6d46-5fb5-4961-8d39-b40972cba9bc
+
+
+
+
+https://github.com/EgeKrts/StockApp/assets/98173099/d013cbcb-ee60-46c7-8dfd-a826204e7eac
 
